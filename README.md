@@ -8,4 +8,4 @@ This repository contains my most up-to-date resume in PDF format.
 
 ---
 
-For questions or opportunities, feel free to reach out via [LinkedIn](https://www.linkedin.com/in/angela-taylor-78430538/) or [email](mailto:hello@angelataylorllc.com).
+For questions or opportunities, feel free to reach out via [LinkedIn](https://www.linkedin.com/in/angela-taylor-78430538/) or [email](mailto:hello@angelataylorllc.com), and don't forget to check out my [Portfolio](https://www.angelataylorllc.com/).
